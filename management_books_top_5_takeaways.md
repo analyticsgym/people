@@ -12,7 +12,7 @@ Top 5 management reminders from notable people management / business books
 
 2.  Managers who over-delegate = too far removed from the work; reports overwhelmed/overstretched
 
-3.  Over-shielding the team can limit growth opportunities and important work visibility
+3.  Over-shielding the team can limit growth opportunities and reduce important work visibility
 
 4.  Feedback: make it specific, be clear on success, did it resonate, questioning to align on next steps
 
